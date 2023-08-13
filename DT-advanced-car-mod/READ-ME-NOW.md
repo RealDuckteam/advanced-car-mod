@@ -1,1 +1,1 @@
-Hey, thanks for finding your way here. I hope you have fun with meier creation. However, there are a few rules to follow. You can find more details on my GitHub Page (https://github.com/RealDuckteam/advanced-car-mod/) and in the LICENSE. Have fun <3
+Hey, thanks for finding your way here. I hope you enjoy my creation. However, there are a few rules to follow. You can find more details on my GitHub Page (https://github.com/RealDuckteam/advanced-car-mod/) and in the LICENSE. Have fun <3
