@@ -4,6 +4,6 @@ Hey, thanks for finding your way here. I hope you enjoy my creation. However, th
 
 ***Preview:***
 
-Preview: Coming soon...
+Preview: https://youtu.be/Juw0vESuLr4
 
-Extras: Coming soon...
+Extras: https://youtu.be/1kDFBgXgATU
